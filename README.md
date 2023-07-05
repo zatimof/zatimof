@@ -19,6 +19,10 @@ zatimof@gmail.com
 
 https://habr.com/ru/users/zatim/
 
+in/timofei-zakharov-480410236
+
+https://t.me/zatimof
+
 <!---
 zatimof/zatimof is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
