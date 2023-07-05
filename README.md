@@ -19,7 +19,7 @@ zatimof@gmail.com
 
 https://habr.com/ru/users/zatim/
 
-in/timofei-zakharov-480410236
+https://www.linkedin.com/in/timofei-zakharov-480410236
 
 https://t.me/zatimof
 
